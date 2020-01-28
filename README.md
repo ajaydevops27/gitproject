@@ -1,3 +1,2 @@
 # gitproject
-
-it is a git project which was done by me
+in sathyatechnology they wont provvide any faculty to clarify ur doubts..dont expect these things from sathytechnology management
